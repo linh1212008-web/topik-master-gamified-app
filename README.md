@@ -1,1 +1,0 @@
-# topik-master-gamified-app
